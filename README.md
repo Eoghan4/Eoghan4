@@ -1,1 +1,2 @@
-<img width="3130" height="2075" alt="009227720033 (1)" src="https://github.com/user-attachments/assets/536eeafa-2ece-4d4f-b076-1aba39133614" />
+<img width="1024" height="194" alt="Eoghan-McGough-30-09-2026" src="https://github.com/user-attachments/assets/437eb145-f26a-432e-a1aa-71ab5b489ac7" />
+
